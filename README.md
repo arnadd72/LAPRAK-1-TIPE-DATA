@@ -1,0 +1,1 @@
+# LAPRAK-1-TIPE-DATA
